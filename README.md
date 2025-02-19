@@ -1,2 +1,2 @@
 # akshayak_cv
-HI.I AM AKSHAYA.K..
+Hi.I am AKSHAYA.K..
